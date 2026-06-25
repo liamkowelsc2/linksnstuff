@@ -8,6 +8,10 @@ yeah use the links below i guess
 
 [youtube](https://youtube.com)
 
-[truffled](https://tutorlevel5.kavellewatches.com/)
+no truffled link :(
 
 [rammerhead](https://zuclic.fit-tw.com)
+
+[rustdesk](https://rustdesk.com/web/)
+
+oh yeah ts is so tuff
